@@ -1,0 +1,4 @@
+Autors:
+Muxtasar,
+Muxsinbek,
+Shahzoda.
